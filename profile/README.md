@@ -33,7 +33,7 @@ Ideal for **business, finance, education, and personal productivity**, Excel com
 
 ---
 
-![Excel Screenshot](https://support.microsoft.com/images/en-us/e0b3e063-5e80-435c-a8bf-a9f3edf35de1)
+![Excel Screenshot](https://photos5.appleinsider.com/gallery/38621-73563-MacBook-Pro-Excel-xl.jpg)
 
 ---
 
